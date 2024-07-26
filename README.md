@@ -1,1 +1,1 @@
-Building products that empower people.
+Building systems that empower people.
